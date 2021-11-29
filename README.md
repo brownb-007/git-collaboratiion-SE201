@@ -2,7 +2,7 @@ I'm only human, I'm only, I'm only
 
 I'm only human, human
 
-Maybe I'm foolish, maybe I'm blind :) :)
+Maybe I'm foolish, maybe I'm blind :) :) :<
 
 Thinking I can see through this and see what's behind
 
