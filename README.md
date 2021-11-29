@@ -6,7 +6,7 @@ Maybe I'm foolish, maybe I'm blind
 
 Thinking I can see through this and see what's behind
 
-Got no way to prove it so maybe I'm lying
+Got no way to prove it so maybe I'm dying
 
 But I'm only human after all, I'm only human after all
 
