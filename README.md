@@ -14,4 +14,4 @@ Don't put your blame on me, don't put your blame on me
 
 Take a look in the mirror and what do you see
 
-Do you see it clearer or are you deceived, in what you believe
+Do you see it clearer or are you deceived, in what you think
